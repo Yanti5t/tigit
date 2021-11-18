@@ -1,0 +1,6 @@
+/*
+Support Heri Hermawan
+
+
+Yang jual sc ini anak haram
+*/
